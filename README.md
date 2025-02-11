@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web 3
 - 🌱 I’m currently learning blockchain education 
 - 💞️ I’m looking to collaborate on new projects 
-- 📫 How to reach me ...
+- 📫 How to reach me ... @Seyi_04 on X, @samirstunner04 on discord.
 - 😄 Pronouns: ... HIM
 - ⚡ Fun fact: ...
 
